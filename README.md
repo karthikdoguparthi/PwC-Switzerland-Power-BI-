@@ -1,1 +1,1 @@
-Youtube Link: https://www.theforage.com/simulations/pwc-ch/power-bi-cqxg
+Internship Link: https://www.theforage.com/simulations/pwc-ch/power-bi-cqxg
